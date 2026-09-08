@@ -227,7 +227,7 @@ timestamps
 **Sujal Pagade**
 - 📧 Email: sujalpagade13@gmail.com
 - 🐙 GitHub: [@sujal13-commits](https://github.com/sujal13-commits)
-- 💼 LinkedIn: [Sujal Pagade](https://www.linkedin.com/in/sujal-pagade-6537a8345?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+- 💼 LinkedIn: [Sujal Pagade](https://www.linkedin.com/in/sujal-pagade-998080369/)
 
 ---
 
